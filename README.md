@@ -1,6 +1,6 @@
-# untitled-dice
+# untitled-dice FORK Neuro Dice - Development 
 
-##### Live demo: https://untitled-dice.github.io
+##### Live demo: https://neurodice.github.io
 
 More info (including changelog and FAQ) in the bitcointalk.org thread: https://bitcointalk.org/index.php?topic=1062680
 
