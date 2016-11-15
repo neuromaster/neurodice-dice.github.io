@@ -5,7 +5,7 @@ DICE BREAK TRUST 200% happy hour:
 ---
 
 **SNOWDEN DICE TRUST**
-
+http://neuromaster.github.io/VeUber/
 [http://neuromaster.github.io/VeUber/](http://neuromaster.github.io/VeUber/)
 
 [https://www.vegascasinobits.com/?referral=43731](https://www.vegascasinobits.com/?referral=43731)
